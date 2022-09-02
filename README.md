@@ -1,7 +1,7 @@
 # yurilicious
 Websitenya para yurilicious
 
-Haihaihaiii selamat belajar semuanya ~~~
+Haihaihaiii selamat belajar semuanya ~~~ uhuyyy
 
 JANGAN LUPA SUBREK!!!!!!!!!!!!!!!!!
 
